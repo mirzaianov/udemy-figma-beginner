@@ -1,4 +1,4 @@
-# NEW Figma 2023: Getting started the Beginner to Pro Class
+# NEW Figma 2024: Getting started the Beginner to Pro Class
 
 Hi!
 
